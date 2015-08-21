@@ -1,6 +1,9 @@
 ### Mrs.Li's Luxury-expression-package [李老师豪华表情包]
 
-#### 如遇辅导员经典语录，欢迎截图，然后E-mail到：`hizhenghang@gmail.com` .欢迎投稿！
+#### 如遇辅导员经典语录，欢迎截图，
+#### 然后E-mail到：`hizhenghang@gmail.com` 
+#### 欢迎投稿！
+#### ***萌萌哒李老师别打我***
 ---
 
 
