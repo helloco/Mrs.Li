@@ -3,6 +3,10 @@
 ### 如遇辅导员经典语录，欢迎截图，然后E-mail到：`hizhenghang@gmail.com` .欢迎投稿！
 ---
 
+- 翅膀长硬了！(不听姐的话了？要造反吗？)
+![翅膀长硬了！(不听姐的话了？要造反吗？)](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package翅膀.png)
+---
+
 - 就我放假，你们统统都要上班！真开心
 ![就我放假，你们统统都要上班！真开心！](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-packageQQ截图20150821101536.png)
 ---
