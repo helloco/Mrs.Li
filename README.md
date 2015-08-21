@@ -2,6 +2,7 @@
 
 #### 如遇辅导员经典语录，欢迎截图，然后E-mail到：`hizhenghang@gmail.com` .欢迎投稿！
 ---
+
 - 请不要试图吵醒上午11点还在沉睡的辅导员
 ![请不要试图吵醒上午11点还在沉睡的辅导员](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package吵醒.png)
 ---
@@ -32,3 +33,16 @@
 
 - 周末了，还在群里聊天的都是单身狗
 ![上班都这么不认真，今后怎么有脸成为优秀校友返校](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package94039734259004228.jpg)
+---
+
+- 不然就会被开除吗？
+![请不要试图吵醒上午11点还在沉睡的辅导员](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package好好上班吧.png)
+---
+
+- “讨嫌”(此处自己想想老师表情)
+![请不要试图吵醒上午11点还在沉睡的辅导员](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package就是讨嫌.jpg)
+---
+
+- 李老师其实是爱我们的，鼓励总是要的
+![李老师其实是爱我们的，鼓励总是要的](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package鼓励.jpg)
+---
