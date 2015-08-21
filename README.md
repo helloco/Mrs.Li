@@ -21,7 +21,7 @@
 
 --- 
 
-- 请不要试图吵醒上午11点还在沉睡的辅导员
+- 请不要试图吵醒上午11点还在睡觉的辅导员
 ![请不要试图吵醒上午11点还在沉睡的辅导员](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package吵醒.png)
 ---
 
