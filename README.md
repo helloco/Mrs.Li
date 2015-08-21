@@ -2,6 +2,9 @@
 
 #### 如遇辅导员经典语录，欢迎截图，然后E-mail到：`hizhenghang@gmail.com` .欢迎投稿！
 ---
+- 请不要试图吵醒上午11点还在沉睡的辅导员
+![请不要试图吵醒上午11点还在沉睡的辅导员](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package吵醒.png)
+---
 
 - 翅膀长硬了！(不听姐的话了？要造反吗？)
 ![翅膀长硬了！(不听姐的话了？要造反吗？)](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package翅膀.png)
