@@ -3,9 +3,6 @@
 #### 如遇辅导员经典语录，欢迎截图，然后E-mail到：`hizhenghang@gmail.com` .欢迎投稿！
 ---
 
-- 请不要试图吵醒上午11点还在沉睡的辅导员
-![请不要试图吵醒上午11点还在沉睡的辅导员](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package吵醒.png)
----
 
 - 翅膀长硬了！(不听姐的话了？要造反吗？)
 ![翅膀长硬了！(不听姐的话了？要造反吗？)](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package翅膀.png)
@@ -21,6 +18,11 @@
 
 - 不聊天！不聊天！不聊天！重要的事情说三遍
 ![上班都这么不认真，今后怎么有脸成为优秀校友返校](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package506639425268916061.jpg)
+
+--- 
+
+- 请不要试图吵醒上午11点还在沉睡的辅导员
+![请不要试图吵醒上午11点还在沉睡的辅导员](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package吵醒.png)
 ---
 
 - 你们这些老脸！我都看习惯了（看烦了）
