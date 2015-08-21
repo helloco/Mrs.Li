@@ -17,8 +17,8 @@
 ---
 
 - 不聊天！不聊天！不聊天！重要的事情说三遍
-![上班都这么不认真，今后怎么有脸成为优秀校友返校](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package506639425268916061.jpg)
 
+![上班都这么不认真，今后怎么有脸成为优秀校友返校](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package506639425268916061.jpg)
 --- 
 
 - 请不要试图吵醒上午11点还在睡觉的辅导员
