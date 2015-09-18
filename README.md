@@ -1,9 +1,12 @@
 ### Mrs.Li's Luxury-expression-package [李老师豪华表情包]
 
-#### 如遇辅导员经典语录，欢迎截图(***萌萌哒李老师别打我,么么哒***)
-#### 然后E-mail到：`hizhenghang@gmail.com` .欢迎投稿！
+#### 如遇辅导员经典语录，欢迎截图. 然后E-mail到：`hizhenghang@gmail.com` .欢迎投稿！
+#### ***萌萌哒李老师别打我,么么哒***
 ---
 
+- 不要穷聊！好好赚钱娶媳妇儿！
+![不要穷聊！好好赚钱娶媳妇儿！)](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-packageQQ截图20150918094412.png)
+---
 
 - 翅膀长硬了！(不听姐的话了？要造反吗？)
 ![翅膀长硬了！(不听姐的话了？要造反吗？)](http://7te9uu.com1.z0.glb.clouddn.com/Mrs-Li-Luxury-expression-package翅膀.png)
